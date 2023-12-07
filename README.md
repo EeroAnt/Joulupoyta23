@@ -8,7 +8,7 @@ Tähän asti näkiksenä jotain seuraavaa:
  - Kalapöytää: ![Siikaceviche](https://hatala.fi/kalareseptit/siikaceviche/), mätikippoja, rosollia
  - Jääpeuracarpaccio
  - ![Beef Wellington](https://anna.fi/reseptit/wellingtonin-filee), ![Dijon-hunaja-kastike](https://slimmingviolet.com/what-sauces-go-with-beef-wellington/), ![lehtiperunat](https://www.meillakotona.fi/reseptit/lehtiperunat)
- - Juustoja?
+ - [Pähkinä-juustopallot](https://viinilehti.fi/reseptiarkisto/pahkina-juustopallot/)
  - Jälkkäriä?
 
 Linkatut reseptit ovat vain ehdotuksia.
